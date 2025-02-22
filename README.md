@@ -24,6 +24,6 @@ Every day is a chance to grow and improve. Whether it's a new framework, a new l
 
 🌍 Let's Connect & Collaborate!
 
-📫 Reach out via [https://www.linkedin.com/in/elise-marie-veskioja-9b2769312/]
+📫 Lets connect! [https://www.linkedin.com/in/elise-marie-veskioja-9b2769312/]
 
 📌 Check out my latest projects here!
