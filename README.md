@@ -1,5 +1,5 @@
 🚀 Passionate Full-Stack & Cross-Platform Developer
-I love exploring new technologies, languages, and techniques—always learning, always building!
+I love exploring new technologies, languages, and techniques—always learning!
 
 💡 Tech I work with:
 🔹 Frontend → HTML, CSS, Tailwind, React, React Native
