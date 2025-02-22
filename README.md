@@ -22,8 +22,6 @@ I love exploring new technologies, languages, and techniques—always learning!
 
 Every day is a chance to grow and improve. Whether it's a new framework, a new language, or a new challenge—I’m up for it!
 
-🌍 Let's Connect & Collaborate!
-
-📫 Lets connect! [https://www.linkedin.com/in/elise-marie-veskioja-9b2769312/]
+🌍 Let's Connect & Collaborate! [https://www.linkedin.com/in/elise-marie-veskioja-9b2769312/]
 
 📌 Check out my latest projects here!
